@@ -1,2 +1,0 @@
-# guvfuv.github.io
-onloade
